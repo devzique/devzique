@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @devzique
+- 👀 I’m interested in Java Development and Security engineering
+- 📫 How to reach me: devzique on discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im the best dev of all time!!!!
